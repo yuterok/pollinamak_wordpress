@@ -1,0 +1,1 @@
+# pollinamak_wordpress
